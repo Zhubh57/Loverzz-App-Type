@@ -1,0 +1,1 @@
+# Loverzz-App-Type
